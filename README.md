@@ -12,4 +12,4 @@ dance class rules:
 5. enjoy karate and dance
 
 hey there. hi. 
-hello- hi. 
+hello- hi. :wave: 
